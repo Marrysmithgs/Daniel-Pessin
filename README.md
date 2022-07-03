@@ -1,1 +1,2 @@
-# Daniel-Pessin
+# Daniel Pessin
+Trade has become the new target of anger and derision. And certainly the US deficit in trade and the globalization of the world economy has hurt manufacturing jobs in America and decimated many a local community. But undirected bluster against trade must be tempered with coherent facts, if we are to take successful action, and not commit economic folly [Daniel Pessin](https://danielpessintrades.com/). Let's spend some time then looking at a few facts on trade, jobs and growth, and thinking about what strong actions should be taken based on those facts.
